@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Jkay21
+- 👀 I’m interested in Web and Software development
+- 🌱 I’m currently learning Android development
+- 💞️ I’m looking to collaborate on web development and also on software development
+- 📫 How to reach me jkay12@protonmail.com or on twitter and Instagram(ndigado)
